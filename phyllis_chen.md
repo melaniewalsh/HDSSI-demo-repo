@@ -1,3 +1,0 @@
-# Phyllis Chen
-
-Favorite emojis: 🥑
